@@ -63,7 +63,7 @@
 - ⭐⭐ Explain the role of entrepreneur in economic development.
 - ⭐ Market  , Technical , Financial feasibility
 - Barriers to Entrepreneurship
-- ⭐ Differenciate Intrapreneure and Entrepreneure
+- ⭐ Differenciate Intrapreneur and Entrepreneur
 
 #### Also Read
 - Stages in the development of the entrepreneurial process
